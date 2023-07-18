@@ -6,7 +6,7 @@ permalink: books
 
 # Here I will post the books I have read, am reading, or want to read...
 
-Sometimes it can be difficult to keep track of what you have and haven't done. Then there is the bragging factor as well; however, I don't think my ignorant generation cares too much. I shouldn't be proud either - I hardly read really. Many of these books I have read because of school, but only in Swedish - those in English I've read myself. Though, I still tell myself that hardly reading is better than not reading **at all**.
+Sometimes it can be difficult to keep track of what you have and haven't done. Then there is the bragging factor as well; however, I don't think my ignorant generation cares too much. I shouldn't be proud either - I hardly read really. Many of these books I have read because of school. But only those in Swedish - those in English I've read myself. Though, I still tell myself that hardly reading is better than not reading **at all**.
 
 I will miss many books, I am not exactly an archive. I archive what I remember reading. I have read some Kurdish books that I have forgotten the names of, but it would not have helped much as they are probably very difficult to Google. I will also progressively add new books which I've read. *duh* 
 
