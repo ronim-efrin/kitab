@@ -16,11 +16,6 @@ Don't get any ideas about why I want to read certain political books. If you're 
 
 [Unabomber Manifesto: The Industrial Revolution and Its Future; ENG](https://https://en.wikipedia.org/wiki/Industrial_Society_and_Its_Future)
 
-- Homeros - These books are ass.
-  - [Iliad; ENG](https://en.wikipedia.org/wiki/Iliad)
-  - [Odyssey; ENG](https://en.wikipedia.org/wiki/Odyssey)
-
-
 [Lord of the Flies; SV, ENG](https://en.wikipedia.org/wiki/Lord_of_the_Flies)
 
 [Raise the Red Lantern; SV, ENG](https://en.wikipedia.org/wiki/Raise_the_Red_Lantern_(novella))
@@ -34,6 +29,10 @@ Don't get any ideas about why I want to read certain political books. If you're 
 [Hamlet; ENG, and portions in SV](https://en.wikipedia.org/wiki/Hamlet)
 
 [Gunnlaugs saga ormstungu; SV](https://en.wikipedia.org/wiki/Gunnlaugs_saga_ormstungu)
+
+- Homeros - These books are ass.
+  - [Iliad; ENG](https://en.wikipedia.org/wiki/Iliad)
+  - [Odyssey; ENG](https://en.wikipedia.org/wiki/Odyssey)
 
 ## Reading
 
