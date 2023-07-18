@@ -1,7 +1,7 @@
 ---
-title: /
-layout: about
-permalink: /
+title: about
+layout: home
+permalink: about
 ---
 
 # Min Sida
