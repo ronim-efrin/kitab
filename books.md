@@ -4,13 +4,13 @@ layout: home
 permalink: books
 ---
 
-# Here I will post the books I have read, am reading, or want to read...
+# Here Here I will post the books I have read, am reading, or want to read.
 
-Sometimes it can be difficult to keep track of what you have and haven't done. Then there is the bragging factor as well; however, I don't think my ignorant generation cares too much. I shouldn't be proud either - I hardly read really. Many of these books I have read because of school. But only those in Swedish - those in English I've read myself. Though, I still tell myself that hardly reading is better than not reading **at all**.
+Sometimes it can be difficult to keep track of what you have and haven't done. Then there is the bragging factor as well; however, I don't think my ignorant generation cares too much. I shouldn't be proud either - I hardly read, really. Many of these books I have read because of school, but only those in Swedish. The ones in English, I've read myself. Though, I still tell myself that hardly reading is better than not reading **at all.**
 
-I will miss many books, I am not exactly an archive. I archive what I remember reading. I have read some Kurdish books that I have forgotten the names of, but it would not have helped much as they are probably very difficult to Google. I will also progressively add new books which I've read. *duh* 
+I will miss many books; I am not exactly an archive. I archive what I remember reading. I have read some Kurdish books whose names I have forgotten, but it would not have helped much as they are probably very difficult to Google. I will also progressively add new books which I've read. *Duh.*
 
-Don't get any ideas of why I want to read sertain political books, if you're curious - then just ask me. The short answer is that I want to know how these great men thought, the best way to get to know is to get to know them - by reading their books!
+Don't get any ideas about why I want to read certain political books. If you're curious, then just ask me. The short answer is that I want to know how these great men thought. The best way to get to know them is to read their books!
 
 ##  Read
 
