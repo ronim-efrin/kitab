@@ -6,11 +6,11 @@ permalink: books
 
 # Ez kê pirtukê min xwendî, dixwînim yan wan ez dixwazim bixwînim li vir arkîv kim.
 
-Carna zihmete ku bîşopînim kijan pirtukên min xwendî. Paşê jî faktora xweşbînî jî heye. Xwendin başe, bes ciwanên nifşê min gû nadin pêşketin yan zanîbûn. Efsûs. Ez jî gava ku nêzîkbûnê çêdikim, ez bi rastî hîn kêm dixwînim. Koleksiyona pirtûkan min biçûk e. Çend ji van pirtûkan min dihatin xwendin ji bo dibistana min, lê tenê ew li Swêdî bûn. Wanên bi îngilîzî, min bi xwe xwend. Lê belê, ez xwe ra dibêm ku hîn xwandinê kêmî ji hîç xwandin baştir e.
+Carna zihmete ku bîşopînim kijan pirtukên min xwendî. Paşê jî faktora xweşbînî jî heye. Xwendin başe, bes ciwanên nifşê min gû nadin pêşketin yan zanîbûn. Efsûs. Ez jî gava ku nêzîkbûnê çêdikim, ez bi rastî hîn kêm dixwînim. Koleksiyona pirtûkan min biçûk e. Çend ji van pirtûkan ê min 'hatin xwendin ji bo dibistana min, lê tenê ew bi Swêdî bûn. Wanên bi îngilîzî, min bi xwe xwend. Lê belê, ez xwe ra dibêm ku hîn xwandinê kêmî ji hîç xwandin baştir e.
 
-Min hinek pirtûkên bêne berdestkirin; ez ne îrşîn im jî. Min hinek pirtûkên Kurdî xwendî, yên min navên wan jî ji bîr kirî. Her wiha min pêşveçûnî hinek pirtûkên nû ku ez xwendineyên xwe dibînim, zêde dikim.
+Min çend pirtûk ên min xwendî ji bîrkirî; ez ne îrşîn im jî. Hîne min hinek pirtûkên Kurdî xwendî, yên min navên wan jî ji bîr kirî. Her wiha ezê pêşveçûnî hinek pirtûkên nû ku min xwendî di arkîvê da zêde 'kim.
 
-Ji bo çawa ez dixwazim hinek pirtûkên siyasî bixwînim, tu tiştên dîtbar ne. Heke tu bişopî, ji min pirs 'kin. Bersiva kurt ew e ku ez dixwazim nas bikim ka ev mêrxasanên mezin çi fikir kirine. Naskirinê wan jî bi xwendinê pirtuka wan ra tê!
+Ji bo çawa ez dixwazim hinek pirtûkên siyasî bixwînim, tu tiştên dîtbar ne. Heke we dişopî, ji min pirs 'kin. Bersiva kurt ew e ku ez dixwazim nas bikim ka ev mêrxasanên mezin çi fikir kirine. Naskirinê wan jî bi xwendinê pirtuka wan ra tê!
 
 ## Pirtukên min xwendî
 
