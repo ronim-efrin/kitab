@@ -4,7 +4,7 @@ layout: home
 permalink: books
 ---
 
-# Li vir ez kê pirtukê min xwendî, dixwînim yan wan ez dixwazim bixwînim - li vir arkîv kim.
+# Ez kê pirtukê min xwendî, dixwînim yan wan ez dixwazim bixwînim li vir arkîv kim.
 
 Her weha gelek caran dikare bibe girîng ku çawa hîskirina pirtûkên ku te jî heye û tune ye. Piştî wê jî heye jî faktora xweşbînî jî; lê ez fikirînim ku ciwanên nezan jî zêdetirî bawer nakin. 
 
