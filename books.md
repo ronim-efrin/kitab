@@ -1,18 +1,18 @@
 ---
-title: books
+title: pirtûk
 layout: home
 permalink: books
 ---
 
-# Ez kê pirtukê min xwendî, dixwînim yan wan ez dixwazim bixwînim li vir arkîv kim.
+# Ez kê pirtûkê min xwendî, dixwînim yan wan ez dixwazim bixwînim li vir arkîv kim.
 
-Carna zihmete ku bîşopînim kijan pirtukên min xwendî. Paşê jî faktora xweşbînî jî heye. Xwendin başe, bes ciwanên nifşê min gû nadin pêşketin yan zanîbûn. Efsûs. Ez jî gava ku nêzîkbûnê çêdikim, ez bi rastî hîn kêm dixwînim. Koleksiyona pirtûkan min biçûke. Çend ji van pirtûkan ê min 'hatin xwendin ji bo dibistana min, lê tenê ew bi Swêdî bûn. Wanên bi îngilîzî, min bi xwe xwend. Lê belê, ez xwe ra dibêm ku hîn xwandinê kêmî ji hîç xwandin baştire.
+Carna zihmete ku bîşopînim kijan pirtûkên min xwendî. Paşê jî faktora xweşbînî jî heye. Xwendin başe, bes ciwanên nifşê min gû nadin pêşketin yan zanîbûn. Efsûs. Ez jî gava ku nêzîkbûnê çêdikim, ez bi rastî hîn kêm dixwînim. Koleksiyona pirtûkan min biçûke. Çend ji van pirtûkan ê min 'hatin xwendin ji bo dibistana min, lê tenê ew bi Swêdî bûn. Wanên bi îngilîzî, min bi xwe xwend. Lê belê, ez xwe ra dibêm ku hîn xwandinê kêmî ji hîç xwandin baştire.
 
 Min çend pirtûkên min xwendî – ji bîrkirî; ez ne îrşîn im jî. Hîne min hinek pirtûkên Kurdî jî xwendî, yên min navên wan ji bîr kirî. Her wiha, ezê pêşveçûnî hinek pirtûkên nû ku min xwendî di arkîvê da zêde 'kim.
 
-Ku xêre ez dixwazim pirtukên siyasî ê ektrêmîsta bixwînim – heke we dişopî, ji min pirs 'kin. Bersiva kurt ewe ku ez dixwazim nas bikim ka ev mêrxasanên mezin çi fikir kirine. Naskirinê wan jî bi xwendinê pirtuka wan ra tê!
+Ku xêre ez dixwazim pirtûkên siyasî ê ektrêmîsta bixwînim – heke we dişopî, ji min pirs 'kin. Bersiva kurt ewe ku ez dixwazim nas bikim ka ev mêrxasanên mezin çi fikir kirine. Naskirinê wan jî bi xwendinê pirtûka wan ra tê!
 
-## Pirtukên min xwendî
+## Pirtûkên min xwendî
 
 [Unabomber Manifesto: The Industrial Revolution and Its Future; ENG](https://https://en.wikipedia.org/wiki/Industrial_Society_and_Its_Future)
 
@@ -34,11 +34,11 @@ Ku xêre ez dixwazim pirtukên siyasî ê ektrêmîsta bixwînim – heke we di�
   - [Iliad; ENG](https://en.wikipedia.org/wiki/Iliad)
   - [Odyssey; ENG](https://en.wikipedia.org/wiki/Odyssey)
 
-## Pirtukên ez dixwînim
+## Pirtûkên ez dixwînim
 
 [Bible; KU, ENG, SV](https://en.wikipedia.org/wiki/Bible)
 
-## Pirtukên ku ez bixwînim
+## Pirtûkên ku ez bixwînim
 
 [The Art of War](https://en.wikipedia.org/wiki/The_Art_of_War)
 
