@@ -4,15 +4,17 @@ layout: home
 permalink: books
 ---
 
-# Here Here I will post the books I have read, am reading, or want to read.
+# Li vir ez kê pirtukê min xwendî, dixwînim yan wan ez dixwazim bixwînim - li vir arkîv kim.
 
-Sometimes it can be difficult to keep track of what you have and haven't done. Then there is the bragging factor as well; however, I don't think my ignorant generation cares too much. I shouldn't be proud either - I hardly read, really. My book collection is pathetic. Many of these books I have read because of school, but only those in Swedish. The ones in English, I've read myself. Though, I still tell myself that hardly reading is better than not reading **at all.**
+Her weha gelek caran dikare bibe girîng ku çawa hîskirina pirtûkên ku te jî heye û tune ye. Piştî wê jî heye jî faktora xweşbînî jî; lê ez fikirînim ku ciwanên nezan jî zêdetirî bawer nakin. 
 
-I will miss many books; I am not exactly an archive. I archive what I remember reading. I have read some Kurdish books whose names I have forgotten, but it would not have helped much as they are probably very difficult to Google. I will also progressively add new books which I've read. *Duh.*
+Carna zihmete ku bîşopînim kijan pirtukên min xwendî. Paşê jî faktora xweşbînî jî heye. Xwendin başe, bes ciwanên nifşê min gû nadin pêşketin yan zanîbûn. Efsûs. Ez jî gava ku nêzîkbûnê çêdikim, ez bi rastî hîn kêm dixwînim. Koleksiyona pirtûkan min biçûk e. Çend ji van pirtûkan min dihatin xwendin ji bo dibistana min, lê tenê ew li Swêdî bûn. Wanên bi îngilîzî, min bi xwe xwend. Lê belê, ez xwe ra dibêm ku hîn xwandinê kêmî ji hîç xwandin baştir e.
 
-Don't get any ideas about why I want to read certain political books. If you're curious, then just ask me. The short answer is that I want to know how these great men thought. The best way to get to know them is to read their books!
+Min hinek pirtûkên bêne berdestkirin; ez ne îrşîn im jî. Min hinek pirtûkên Kurdî xwendî, yên min navên wan jî ji bîr kirî. Her wiha min pêşveçûnî hinek pirtûkên nû ku ez xwendineyên xwe dibînim, zêde dikim.
 
-##  Read
+Ji bo çawa ez dixwazim hinek pirtûkên siyasî bixwînim, tu tiştên dîtbar ne. Heke tu bişopî, ji min pirs 'kin. Bersiva kurt ew e ku ez dixwazim nas bikim ka ev mêrxasanên mezin çi fikir kirine. Naskirinê wan jî bi xwendinê pirtuka wan ra tê!
+
+## Pirtukên min xwendî
 
 [Unabomber Manifesto: The Industrial Revolution and Its Future; ENG](https://https://en.wikipedia.org/wiki/Industrial_Society_and_Its_Future)
 
@@ -34,11 +36,11 @@ Don't get any ideas about why I want to read certain political books. If you're 
   - [Iliad; ENG](https://en.wikipedia.org/wiki/Iliad)
   - [Odyssey; ENG](https://en.wikipedia.org/wiki/Odyssey)
 
-## Reading
+## Pirtukên ez dixwînim
 
 [Bible; KU, ENG, SV](https://en.wikipedia.org/wiki/Bible)
 
-## Will Read
+## Pirtukên ku ez bixwînim
 
 [The Art of War](https://en.wikipedia.org/wiki/The_Art_of_War)
 
