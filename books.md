@@ -6,8 +6,6 @@ permalink: books
 
 # Ez kê pirtukê min xwendî, dixwînim yan wan ez dixwazim bixwînim li vir arkîv kim.
 
-Her weha gelek caran dikare bibe girîng ku çawa hîskirina pirtûkên ku te jî heye û tune ye. Piştî wê jî heye jî faktora xweşbînî jî; lê ez fikirînim ku ciwanên nezan jî zêdetirî bawer nakin. 
-
 Carna zihmete ku bîşopînim kijan pirtukên min xwendî. Paşê jî faktora xweşbînî jî heye. Xwendin başe, bes ciwanên nifşê min gû nadin pêşketin yan zanîbûn. Efsûs. Ez jî gava ku nêzîkbûnê çêdikim, ez bi rastî hîn kêm dixwînim. Koleksiyona pirtûkan min biçûk e. Çend ji van pirtûkan min dihatin xwendin ji bo dibistana min, lê tenê ew li Swêdî bûn. Wanên bi îngilîzî, min bi xwe xwend. Lê belê, ez xwe ra dibêm ku hîn xwandinê kêmî ji hîç xwandin baştir e.
 
 Min hinek pirtûkên bêne berdestkirin; ez ne îrşîn im jî. Min hinek pirtûkên Kurdî xwendî, yên min navên wan jî ji bîr kirî. Her wiha min pêşveçûnî hinek pirtûkên nû ku ez xwendineyên xwe dibînim, zêde dikim.
