@@ -11,6 +11,10 @@ Du kommer behöva musik om du ska ta dig igenom denna sida med ditt förnuft kva
 
 Igår drack jag ett vattenglas vodka, ringde självmordslinjen (ingen svarade), och tillslut grät jag mig själv till sömns. Inte min värsta dag.
 
+## Förrigår, ish? 2024-06-17
+
+Förrigår, eller dagen innan? Minns inte riktigt. Jag tog mig in i skogen, mådde så dåligt, visste att jag inte skulle hitta ut, men jag brydde mig inte. Hoppades på att jag skulle försvinna. Filmade en video och döpte den till "Djungelkurdens Äventyr" och skickade den till min vänner för att få dom att skratta hahahah. Själv var jag i smärta. Jag var i skogen tills solen gick ner. Den dagen var illa...
+
 ## Din nyfikenhet stör mig, rant 2024-06-17
 
 Jag hade helst bara skrivit detta på ryska och kurdiska, för endast i dem språken är denna text inte skrattvärdig. 
