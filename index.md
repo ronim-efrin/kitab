@@ -8,6 +8,10 @@ permalink: /
 Du kommer behöva musik om du ska ta dig igenom denna sida med ditt förnuft kvar. [Lyssna på min spellista](https://music.youtube.com/playlist?list=PLS-abqU6QBvgYYGYxbqw-UFybw5b818G0)
 
 
+## Igår? 2024-06-17
+
+Igår drack jag ett vattenglas vodka, ringde självmordslinjen (ingen svarade), och tillslut grät jag mig själv till sömns. 
+
 ## Din nyfikenhet stör mig, rant 2024-06-17
 
 Jag hade helst bara skrivit detta på ryska och kurdiska, för endast i dem språken är denna text inte skrattvärdig. 
