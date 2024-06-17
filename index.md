@@ -21,6 +21,7 @@ Inte ens min tidigare flickvän på fyra år verkade bry sig. Åh vad jag ångra
 Aja, rantade lite för mycket. För att komma till punkt, min depression har blivit mycket värre igen. Den hade stagnerat en period, nu kollapsar allting igen. Tack för att du läste! :D
 
 ![här är ett öga jag ritade för länge sen i skolan C:](oga-img.jpg)
+Här är ett öga jag ritade för länge sen i skolan. Tyckte det var fint, så det fick vara med. C:
 
 
 ## Min första Ryska text 2024-06-17
