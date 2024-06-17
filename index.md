@@ -18,7 +18,7 @@ Jag har inte yttrat mig med många om detta. Det är en rar vän till mig som k�
 
 Inte ens min tidigare flickvän på fyra år verkade bry sig. Åh vad jag ångrar sakerna jag gjorde mot och med henne, hon skulle inte förstå min ångest även om jag skulle be om ursäkt. Vill inte tillbaka till henne, nej USCH. Jag vill bara att hon ska veta att inte ens jag inte kan förlåta mig själv. 
 
-![bild](oga-img.png)
+![bild](oga-img.jpg)
 
 
 ## Min första Ryska text 2024-06-17
