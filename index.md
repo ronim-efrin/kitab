@@ -10,7 +10,7 @@ Du kommer behöva musik om du ska ta dig igenom denna sida med ditt förnuft kva
 
 ## Igår? 2024-06-17
 
-Igår drack jag ett vattenglas vodka, ringde självmordslinjen (ingen svarade), och tillslut grät jag mig själv till sömns. 
+Igår drack jag ett vattenglas vodka, ringde självmordslinjen (ingen svarade), och tillslut grät jag mig själv till sömns. Inte min värsta dag.
 
 ## Din nyfikenhet stör mig, rant 2024-06-17
 
