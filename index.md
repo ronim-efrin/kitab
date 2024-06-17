@@ -49,7 +49,7 @@ Upplevde en chock idag, igen. Utan att bli arg eller sur, vill jag berätta i sk
 På samma not, dem är helt blinda blinda till visioner av möjligheter och alternativa realiteter. Är det kanske något jag har givits av Gud? Jag är tacksam för allt du gör för mig, min Gud. Min all-älskade och beundrade, fyll mig med anden och ta över mitt liv och styr mig åt rätt håll. Så jag kan uppfyllas i dina ord och din ära. Amen
 
 ## Rop för hjälp, datumlöst
-![Gnosis1](assets\bilder\gnosis\IMG_20240617_111544.jpg)
+![Gnosis1](assets\bilder\kristetrandom\IMG_20240617_111544.jpg)
 
 ## Gnosis, datumlöst
 ![Gnosis1](assets\bilder\gnosis\Untdsitled.png)
