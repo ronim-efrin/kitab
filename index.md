@@ -5,6 +5,8 @@ permalink: /
 ---
 # Här får du se portioner från min dagbok. Döm gärna inte; jag är gammalmodig och flyter iväg i mina tankar väldigt enkelt. Folk kan inte så mycket om mig, inte ens mina bästa vänner.
 
+Du kommer behöva musik om du ska ta dig igenom denna sida med ditt förnuft kvar. ![Lyssna på min spellista](https://music.youtube.com/playlist?list=PLS-abqU6QBvgYYGYxbqw-UFybw5b818G0)
+
 
 ## Din nyfikenhet stör mig, rant 2024-06-17
 
