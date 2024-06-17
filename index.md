@@ -1,9 +1,25 @@
 ---
-title: Dagbok
+title: dagbok
 layout: home
 permalink: /
 ---
 # Här får du se portioner från min dagbok. Döm gärna inte; jag är gammalmodig och flyter iväg i mina tankar väldigt enkelt. Folk kan inte så mycket om mig, inte ens mina bästa vänner.
+
+
+## Din nyfikenhet stör mig, rant 2024-06-17
+
+Jag hade helst bara skrivit detta på ryska och kurdiska, för endast i dem språken är denna text inte skrattvärdig. 
+
+Jag diagnosticerades med svår depression i min tillvaro i andra året i gymnasiet, om man ens kan kalla det tillvaro. Demoner. Kväll och natt kollade jag upp mot mitt tak. Tankarna flöt. De skrev ut happy-pills till mig, ecitalopram. Folk kallar det för happy pills; du mår varken bra eller dåligt, allting blir matt, grått. I början var det ren yrsel, som en svag alkoholpåverkan. Vilket skräp. Jag slutade ta medicinen tre månader senare. Kan du tänka dig att jag klarade ut gymnasiet med helt okej betyg och den svåraste linjen, samtidigt som hälften av alla lärare hatade mig? Tänk pajasen som inte ens kan klara ut sitt praktiska. Väldigt okristet att yttra mig såhär.
+
+Åh Gud, vad folk pratar om styrka. Vad är din styrka? Din katt dog och du ska gråta i flera månader? Folk försvinner från mitt liv, släktingar; som myror blir de trampade på. Vad är styrka, gymmet? Nej. Även om du lyckas använda din syntetiska styrka till något, så är det fortfarande bara temporärt. Styrka är när du kan dra din självmordsbenägna själ igenom det värsta och ändå komma ut segrande. Dag in och dag ut, varje dag. Styrka är när du är så förstörd men ändå kan bete dig normalt och skratta som alla andra, skratta högre i mitt fall. Styrka är när du kan ta stryk, så mycket stryk, och ändå komma ut med glädje och kärlek ur striden. 
+
+Jag har inte yttrat mig med många om detta. Det är en rar vän till mig som känner till detta, inte många fler. Varför skulle jag behöva yttra mig om det här? Hade du brytt dig? I vilken kontext ska jag ta upp det här? Varför då blir du galen över att du inte vet något om mig, om "mystiska" Roni? 
+
+Inte ens min tidigare flickvän på fyra år verkade bry sig. Åh vad jag ångrar sakerna jag gjorde mot och med henne, hon skulle inte förstå min ångest även om jag skulle be om ursäkt. Vill inte tillbaka till henne, nej USCH. Jag vill bara att hon ska veta att inte ens jag inte kan förlåta mig själv. 
+
+![här är ett fint öga jag hade ritat på någon lektion i skolan C:](https://media.discordapp.net/attachments/1216841570595377154/1252178803694764114/IMG_20240617_103105.jpg?ex=667145e3&is=666ff463&hm=866eed9d3d7249936dd7a3b6e64695ab8423aeb8b579736315e98ceb1f8a9f87&=&format=webp&width=885&height=559)
+
 
 ## Min första Ryska text 2024-06-17
 
