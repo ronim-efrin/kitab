@@ -7,13 +7,21 @@ permalink: /
 Du kommer behöva musik om du ska ta dig igenom denna sida med ditt förnuft kvar. [Lyssna på min spellista](https://music.youtube.com/playlist?list=PLS-abqU6QBvgYYGYxbqw-UFybw5b818G0)
 
 
+## Igår! 2024-06-21
+Igår hade jag kul, var med vänner och åkte till Västerås runt klockan 23.15 på kvällen. Vi var framme hemma runt ett. Fick en total breakdown när jag lämnade av grabbarna, eller a - sista grabben. Jag gick ut ur bilen och bad i gården bredvid hans hus, la mig på knäna och bad till Gud. Helt förstörd var jag. Tänkte supa mig till sömns igen men fick en stark motvilja i sista sekund. Det var nog Gud som stoppade mig. Jag var helt förstörd igår. Jag ser inte någon anledning till att leva men jag är för feg för att ta mitt liv. Det enda ljuset jag ser, det enda hoppet, är en fru och ett barn. Mitt barn. Åh vad jag önskar mig en dotter. Liten gullig grej, i alla fall upp till tonåren. En älskande fru. Jag ser inte varför det skulle vara omöjligt. Det är bara att väntan är för lång. Jag är 19. Jag vet inte om jag kan hålla ut så länge till. 
+
+På tal om tjejer, mina kompisar har skämtat om att jag ska vara med den här tjejen, en gammal klasskompis. Att jag ska "tap that, just once". Dom snackar om henne som om hon vore ett djur, alla e tväräcklade av henne. 
+
+Många snackar om vissa av kvinnorna runt mig som om de vore vidriga troll. Även om de inte är de mest attraktiva så ser jag ändå ett ljus i dom. Vänner som beskriver hur jag ska placera en påse på denne tjejens huvud när jag gör min grej med henne, och att han inte ens kunde göra det med påsen på för att hon är så äcklig. Sliskig, äcklig, eparaggare, feströkare och snusare. Beskriver hur hon har ett torrt arsle och (vidrig botten). Jag placerade "vidrig botten" inom parantes för att jag inte ens vill beskriva vad som sas. Problemet e att denne tjej söker sig till dessa grabbar, till mina vänner. Jag kommer inte stoppa henne. Jag har försökt hjälpa henne men det slutar alltid upp med att hon snackar skit om mig, skjuter mig iväg. Även fast jag e den snällaste mot henne. Aja. Om du läser detta, du skadar dig själv. Du skadar dig själv, och du har skadat mig när jag har försökt hjälpa dig. Men det spelar ingen roll, fortsätt söka dig till dom. Gud har berättat för mig hur dåligt du mår, men ta mig fan om du låter mig hjälpa dig. Jag ser mitt lidande i dig, även om det inte ens nära min nivå av lidande.
+
+Åh Gud, du plågar mig mest av alla även fast jag e din mest trovärdige. Varför. Jag som älskar dig så, min Gud. Why have Ye rebuked me. 
+
+Juste! Samma tjej kom till min väns fotbollsmatch. Min kompis som spelade vart tvär äcklad och arg. Som sagt, ingen gillar henne. Aja, struntsamma den idioten. Hon hade med sig en annan vän. Vännen hade en magnetisk bliick, hahah. Hon tittade på mig, lite kortare var hon. Hon var rätt söt. Hon såg lite mer skadad ut. Vet ej hur jag ska beskriva. Man kan se på människor ifall de har varit igenom saker. Antingen är det dom som har förstört sig själva, eller så har dom blivit förstörda. Jag kan märka det för jag ser sånt i mig själv också. Smink gömmer inte skadan som har gjorts på själen. Hade vart roligt att lära känna henne.
+
+
 ## Igår? 2024-06-17
 
 Igår drack jag ett vattenglas vodka, ringde självmordslinjen (ingen svarade), och tillslut grät jag mig själv till sömns. Inte min värsta dag.
-
-## Förrigår, ish? 2024-06-17
-
-Förrigår, eller dagen innan? Minns inte riktigt. Jag tog mig in i skogen, mådde så dåligt, visste att jag inte skulle hitta ut, men jag brydde mig inte. Hoppades på att jag skulle försvinna. Filmade en video och döpte den till "Djungelkurdens Äventyr" och skickade den till min vänner för att få dom att skratta hahahah. Själv var jag i smärta. Jag var i skogen tills solen gick ner. Den dagen var illa...
 
 ## Din nyfikenhet stör mig, rant 2024-06-17
 
