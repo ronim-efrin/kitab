@@ -16,7 +16,7 @@ Många snackar om vissa av kvinnorna runt mig som om de vore vidriga troll. Äve
 
 Åh Gud, du plågar mig mest av alla även fast jag e din mest trovärdige. Varför. Jag som älskar dig så, min Gud. Why have Ye rebuked me. 
 
-Juste! Samma tjej kom till min väns fotbollsmatch. Min kompis som spelade vart tvär äcklad och arg. Som sagt, ingen gillar henne. Aja, struntsamma den idioten. Hon hade med sig en annan vän. Vännen hade en magnetisk bliick, hahah. Hon tittade på mig, lite kortare var hon. Hon var rätt söt. Hon såg lite mer skadad ut. Vet ej hur jag ska beskriva. Man kan se på människor ifall de har varit igenom saker. Antingen är det dom som har förstört sig själva, eller så har dom blivit förstörda. Jag kan märka det för jag ser sånt i mig själv också. Smink gömmer inte skadan som har gjorts på själen. Hade vart roligt att lära känna henne.
+Juste! Samma tjej kom till min väns fotbollsmatch. Min kompis som spelade vart tvär äcklad och arg. Som sagt, ingen gillar henne. Aja, struntsamma den idioten (tjejen). Hon hade med sig en annan vän. Vännen hade en magnetisk bliick, hahah. Hon tittade på mig, lite kortare var hon. Hon var rätt söt. Hon såg lite mer skadad ut. Vet ej hur jag ska beskriva. Man kan se på människor ifall de har varit igenom saker. Antingen är det dom som har förstört sig själva, eller så har dom blivit förstörda. Jag kan märka det för jag ser sånt i mig själv också. Smink gömmer inte skadan som har gjorts på själen. Hade vart roligt att lära känna henne.
 
 
 ## Igår? 2024-06-17
