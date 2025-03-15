@@ -7,13 +7,7 @@ permalink: gallery
 
 
 
-## Rop för hjälp, datumlöst
+## Massa bilder jag tog i ROMMMMMMM
 ![Gnosis1](assets\bilder\kristetrandom\IMG_20240617_111544.jpg)
-
-## Gnosis, datumlöst
-![Gnosis1](assets\bilder\gnosis\Untdsitled.png)
-![Gnosis2](assets\bilder\gnosis\IMG_20240617_111425.jpg)
-
-
 
 
