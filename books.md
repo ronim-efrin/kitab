@@ -4,6 +4,8 @@ layout: home
 permalink: books
 ---
 
+#DEFUNKEEEEED PROJECTTTTTT (im too lazyyyyyyyy to put in more entries grrrrrrrr)
+
 # Ez kê pirtûkê min xwendî, dixwînim, yan wan ez dixwazim bixwînim li vir arkîv kim.
 
 Carna zihmete ku bîşopînim kijan pirtûkên min xwendî. Paşê jî faktora xweşbînî jî heye. Xwendin başe, bes ciwanên nifşê min gû nadin pêşketin yan zanîbûn. Efsûs. Ez jî gava ku nêzîkbûnê çêdikim, ez bi rastî hîn kêm dixwînim. Koleksiyona pirtûkan min biçûke. Çend ji van pirtûkan ê min 'hatin xwendin ji bo dibistana min, lê tenê ew bi Swêdî bûn. Wanên bi îngilîzî, min bi xwe xwend. Lê belê, ez xwe ra dibêm ku hîn xwandinê kêmî ji hîç xwandin baştire.
