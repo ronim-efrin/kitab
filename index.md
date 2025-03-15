@@ -4,7 +4,9 @@ layout: home
 permalink: /
 ---
 # Här får du se portioner från min dagbok. Döm gärna inte; jag är gammalmodig och flyter iväg i mina tankar väldigt enkelt. 
-Du kommer behöva musik om du ska ta dig igenom denna sida med ditt förnuft kvar. [Lyssna på min spellista](https://music.youtube.com/playlist?list=PLS-abqU6QBvgYYGYxbqw-UFybw5b818G0).[OCKSÅ KAN DU TA DIG TILLBAKA TILL LINKS-SIDAN1!!! <3 AAAAAAAAAA](https://ronim-efrin.github.io/).
+Du kommer behöva musik om du ska ta dig igenom denna sida med ditt förnuft kvar. [Lyssna på min spellista](https://music.youtube.com/playlist?list=PLS-abqU6QBvgYYGYxbqw-UFybw5b818G0).
+
+[OCKSÅ KAN DU TA DIG TILLBAKA TILL LINKS-SIDAN1!!! <3 AAAAAAAAAA](https://ronim-efrin.github.io/). (jag har tappat mitt förnuft ser du väl!)
 
 ## IDAG!? HEMSIDANS REVIVE!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!! 2025-03-15
 Long time no see! Eller vad säger man, haha! Jag gråter av glädje. Jag har kommit så långt. Nya trauman upplevda, gamla bortglömda. Jag gråter för jag ser skillnaden, p.ga. dagboken. God gave it a purpose. God gave me a purpose. Jag älskar dig min Herre! Massa kyssar till dig :X.  Här är en ny text, jag klistrar in den innan mina tårar får mig synlösa: 
