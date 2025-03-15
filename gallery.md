@@ -1,7 +1,7 @@
 ---
 title: gallery
 layout: home
-permalink: /
+permalink: gallery
 ---
 # Här får du se bilder <3
 
