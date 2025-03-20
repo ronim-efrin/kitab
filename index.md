@@ -12,13 +12,13 @@ permalink: /
 ![b](assets\bilder\kristetrandom\wereq-newroz.jpg)
 
 ## fffffffffff 2025-03-20
-Jag blev inte placerad på denna jord för att leva mitt liv, det var aldrig mitt till att börja med. Jag är en pusselbit i den stora högen av det olösta pusslet. Herren min placerar oss, en och en. Vad han vill med mig, vet jag inte. Han har förberett mig till något stort, somt jag inte har en aning om. Han förbereder mig, mitt lidande tar inte slut. Men jag hoppas i honom, har inget annat att hänga mitt liv på. Den kärleken jag får utav få människor, är stor. Men den största är utav den Ene. Må han frälsa oss.
-
-Jag söker inte ilska, oro, stress, strid... Det är vad de halsar i mig. Jag erbjuder mig till dem som behöver. Jag försöker mitt bästa till att bidra. Jag ser ljus bli omringat av mörker. Det är inte till vem som helst. Jag känner mig patetisk. Folk pratar med mig, endast lögner hörs. Jag ser fel, allt som skaver – deras prat förvandlas till mummel. Kanske är det den som möter mig som är patetisk. Jag faller. Jag hoppas att Gud fångar mig. 
-
-Ingen hör när jag pratar om mig själv. Jag tänker inte försöka. Det är endast Immanuel som vet vem jag är. Vem är Han? Ta upp ditt kors så får du se. 
-
-Var barmhärtig å Herre. Amen
+ Әз нә һатьм ве дьнйайе да кӧ хԝә бь хԝә бьжим?  тӧ щар дьбура мьн небу.  Әз парчәйәк ьм дь кӧлилкәке дә йа неԛәданди.  Хԝәде мьн әм радьхә,  йәк бь йәк.  Әз ньзаньм ирадәйа ԝи жь мьн чь йә.  Ԝи мьн жь бo тьште мәзьн амадә кьр,  тьштәке кӧ мьн тәшни ньзам чь йә.  Ԝи мьн амадә дькә,  ле эше мьн ԛәдьйа накә.  Ле әз һеви дькьм дь ԝи дә,  тьштәки дьн ниньм кӧ жьйана хԝә ль сәр бьхԝе.  Әв әвине кӧ әз жь кем кәсан рә дьгьрьм,  мәзьн ә.  Ле әв мәзьнтрин,  әвина Әԝ йәк ә.  Хԝәде маԛбӧл бьки. 
+ 
+ Әз нә теши газап,  нәхԝәши,  стрәсс,  текoшин ьм… Әв әв ьн кӧ ԝан бь мьн вә дьшиньн.  Әз хԝә дьгьрьм жь бo ԝан кӧ пеԝистьйе һәнә.  Әз терахьз дькьм кӧ аликар бькьм.  Әз дитьне,  рoнаһи дьгәрә дь нав тари дә.  Әв нә жь бo һәр кәс ә.  Әз хԝә әзаф дькьне,  иһтьйаща мьн бь һез ә.  Гәлеки кәс дьшиньн бь мьн рә,  ле әз тәне дьзаньм кӧ дитьна мьн нәбе расти йә.  Әз хәләтьйе дикарьм,  һәму тьшт у гoтьнен ԝан дькарьн пеш мә тари бьбьн.  Гәлo әз әзаф ьм ан жи әԝ кӧ мьн дьгьрә әзаф ә? Әз дькем.  Әз һеви дькьм Хԝәде мьн бьгьрә. 
+ 
+ Кәсе мьн надьйә гуһ кӧ мьн ль сәр хԝә дьахьвьм.  Әз э диса нә бьбежьм.  Тәне Имманӧәл дьзанә әз ки мә.  Ки йә Әԝ? Хаще хԝә бьгьрә у э бьбини. 
+ 
+ Ә жь дьле хԝә бьхә,  әй Хԝәде!  Амән.  
 
 ## IDAG!? HEMSIDANS REVIVE!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!! 2025-03-15
 Long time no see! Eller vad säger man, haha! ######## ###### ######. Jag har kommit så långt. Nya trauman upplevda, gamla bortglömda. Jag ###### för jag ser skillnaden, p.ga. dagboken. God gave it a purpose. God gave me a purpose. Jag älskar dig min Herre! Massa kyssar till dig :X.  Här är en ny text, jag klistrar in den innan mina ##### får mig synlösa: 
