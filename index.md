@@ -12,7 +12,7 @@ permalink: /
 ![b](assets\bilder\kristetrandom\wereq-newroz.jpg)
 
 ## IDAG!? HEMSIDANS REVIVE!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!! 2025-03-15
-Long time no see! Eller vad säger man, haha! ######## ###### ######. Jag har kommit så långt. Nya trauman upplevda, gamla bortglömda. Jag ###### för jag ser skillnaden, p.ga. dagboken. God gave it a purpose. God gave me a purpose. Jag älskar dig min Herre! Massa kyssar till dig :X.  Här är en ny text, jag klistrar in den innan mina tårar får mig synlösa: 
+Long time no see! Eller vad säger man, haha! ######## ###### ######. Jag har kommit så långt. Nya trauman upplevda, gamla bortglömda. Jag ###### för jag ser skillnaden, p.ga. dagboken. God gave it a purpose. God gave me a purpose. Jag älskar dig min Herre! Massa kyssar till dig :X.  Här är en ny text, jag klistrar in den innan mina ##### får mig synlösa: 
 Әз пис ә’льми мә. Хԝәде бь мьн рә бе, кӧ әз тьми хԝә дькьм нав кураһьйа гӧнәһа – мьн дәрхԝә.     
 Чә'в жь мьн һәзкьрьнә, ньзаньм чаԝа хԝә жь писише хәласкьм.   Ԝе мьн кьшандьйә кураһьйа дьле хԝә, кӧ межи мьн ԝәстьйайи. Әԝйәка ԛиза дьжмьнанә, ве нас у гӧманә.  
 
