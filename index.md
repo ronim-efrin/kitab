@@ -1,5 +1,5 @@
 ---
-title: dagbok
+title: kitab
 layout: home
 permalink: /
 ---
