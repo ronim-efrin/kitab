@@ -7,9 +7,18 @@ permalink: /
 [OCKSÅ KAN DU TA DIG TILLBAKA TILL LINKS-SIDAN1!!! <3](https://ronim-efrin.github.io/). (jag har tappat mitt förnuft ser du väl!)
 
 ## ugh 2025-03-20
-är trött i själen. 
+är trött i själen. gott nytt kurdiskt år dock. mycket kärlek till dem godhjärtade.
 ![a](assets\bilder\kristetrandom\christu-newroz.jpg)
 ![b](assets\bilder\kristetrandom\wereq-newroz.jpg)
+
+## fffffffffff 2025-03-20
+Jag blev inte placerad på denna jord för att leva mitt liv, det var aldrig mitt till att börja med. Jag är en pusselbit i den stora högen av det olösta pusslet. Herren min placerar oss, en och en. Vad han vill med mig, vet jag inte. Han har förberett mig till något stort, somt jag inte har en aning om. Han förbereder mig, mitt lidande tar inte slut. Men jag hoppas i honom, har inget annat att hänga mitt liv på. Den kärleken jag får utav få människor, är stor. Men den största är utav den Ene. Må han frälsa oss.
+
+Jag söker inte ilska, oro, stress, strid... Det är vad de halsar i mig. Jag erbjuder mig till dem som behöver. Jag försöker mitt bästa till att bidra. Jag ser ljus bli omringat av mörker. Det är inte till vem som helst. Jag känner mig patetisk. Folk pratar med mig, endast lögner hörs. Jag ser fel, allt som skaver – deras prat förvandlas till mummel. Kanske är det den som möter mig som är patetisk. Jag faller. Jag hoppas att Gud fångar mig. 
+
+Ingen hör när jag pratar om mig själv. Jag tänker inte försöka. Det är endast Immanuel som vet vem jag är. Vem är Han? Ta upp ditt kors så får du se. 
+
+Var barmhärtig å Herre. Amen
 
 ## IDAG!? HEMSIDANS REVIVE!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!! 2025-03-15
 Long time no see! Eller vad säger man, haha! ######## ###### ######. Jag har kommit så långt. Nya trauman upplevda, gamla bortglömda. Jag ###### för jag ser skillnaden, p.ga. dagboken. God gave it a purpose. God gave me a purpose. Jag älskar dig min Herre! Massa kyssar till dig :X.  Här är en ny text, jag klistrar in den innan mina ##### får mig synlösa: 
