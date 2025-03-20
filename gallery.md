@@ -8,6 +8,6 @@ permalink: gallery
 
 
 ## Massa bilder jag tog i ROMMMMMMM
-![Gnosis1](assets\bilder\kristetrandom\IMG_20240617_111544.jpg)
+![Gnosis1](assets\bilder\rom\IMG_1899-2-2.jpg)
 
 
