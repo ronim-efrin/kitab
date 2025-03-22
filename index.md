@@ -21,7 +21,8 @@ permalink: /
  Ә жь дьле хԝә бьхә,  әй Хԝәде!  Амән.  
 
 ## IDAG!? HEMSIDANS REVIVE!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!! 2025-03-15
-Long time no see! Eller vad säger man, haha! ######## ###### ######. Jag har kommit så långt. Nya trauman upplevda, gamla bortglömda. Jag ###### för jag ser skillnaden, p.ga. dagboken. God gave it a purpose. God gave me a purpose. Jag älskar dig min Herre! Massa kyssar till dig :X.  Här är en ny text, jag klistrar in den innan mina ##### får mig synlösa: 
+Long time no see! Eller vad säger man, haha! ######## ###### ######. Jag har kommit så långt. Nya @@@@@@@ upplevda, gamla bortglömda. Jag ###### för jag ser skillnaden, p.ga. dagboken. @@@@@@@@@@@@@@@@. @@@@@@@@@@@@@. Jag älskar dig min Herre! Massa kramar till dig :X.  Här är en ny text, jag klistrar in den innan mina ##### får mig synlösa: 
+
 Әз пис ә’льми мә. Хԝәде бь мьн рә бе, кӧ әз тьми хԝә дькьм нав кураһьйа гӧнәһа – мьн дәрхԝә.     
 Чә'в жь мьн һәзкьрьнә, ньзаньм чаԝа хԝә жь писише хәласкьм.   Ԝе мьн кьшандьйә кураһьйа дьле хԝә, кӧ межи мьн ԝәстьйайи. Әԝйәка ԛиза дьжмьнанә, ве нас у гӧманә.  
 
@@ -30,5 +31,5 @@ Long time no see! Eller vad säger man, haha! ######## ###### ######. Jag har ko
 Дьһo? Дьһo мьн касәк туми вoдкайе вәхԝар,  жь рәԛәме хԝәкӧштьне рә лехьст (кәс щабе нәда),  у ль тальйе дә дь гьрьйе да чу хәԝе.  Рoжәк ә'ди бу. 
 
 ![här är ett öga jag ritade för länge sen i skolan C:](oga-img.jpg)
-Här är ett öga jag ritade för länge sen i skolan. Tyckte det var fint, så det fick vara med. C:
+Här är ett öga jag ritade för länge sen i skolan. Det fick vara med. C:
 
