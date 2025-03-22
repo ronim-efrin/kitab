@@ -32,17 +32,3 @@ Long time no see! Eller vad säger man, haha! ######## ###### ######. Jag har ko
 ![här är ett öga jag ritade för länge sen i skolan C:](oga-img.jpg)
 Här är ett öga jag ritade för länge sen i skolan. Tyckte det var fint, så det fick vara med. C:
 
-## 2024-03-15
-
-Upplevde en chock idag, igen. Utan att bli arg eller sur, vill jag berätta i skillnaderna mellan tankeprocesserna jag har upplevt mellan mig och människorna runtom. Dessa människor är så fokuserade på nuet och sig själva att dom är blinda till exakt allt annat. Hur kan man, som en hudsäck, vara så stolt över sig själv? Dom lever i synd, dom ursäktar allting dom gör och letar endast och alltid självisk fullkomlighet och tillfredsställande. Deras själar är så förrådda att man inte ens kan få ett skymt av Gud i dem. Åh, herren Kristus, rädda oss allihopa; dina barn är så vilseledda. Jag är som dem, fylld med synd. Men jag letar fullkomlighet i din ära, åh min älskade herre. 
-#############################################################. Är det kanske något jag har givits av Gud? Jag är tacksam för allt du gör för mig, min Gud. Min all-älskade och beundrade, fyll mig med anden och ta över mitt liv och styr mig åt rätt håll. Så jag kan uppfyllas i dina ord och din ära. Amen
-
-## Rop för hjälp, datumlöst
-![Gnosis1](assets\bilder\kristetrandom\IMG_20240617_111544.jpg)
-
-## Gnosis, datumlöst
-![Gnosis1](assets\bilder\gnosis\Untdsitled.png)
-![Gnosis2](assets\bilder\gnosis\IMG_20240617_111425.jpg)
-
-
-
