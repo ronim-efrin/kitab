@@ -6,6 +6,9 @@ permalink: /
 # Här får du se portioner från min dagbok.
 [OCKSÅ KAN DU TA DIG TILLBAKA TILL LINKS-SIDAN1!!! <3](https://ronim-efrin.github.io/). (jag har tappat mitt förnuft ser du väl!)
 
+## Хöдан, әз бь тә ра мә 2025-03-29
+Әз дур ьм.  Әз ԝьнда бум. 
+ 
 ## Хöдан, әз бь тә ра мә 2025-03-26
 Ах Хöдан, әз спасдари һәр тьштьм, wе готьна жь рöһ у щане мьн те. Ахинә, qеринә, рьзгарьйа тә ке кичаq бь мьн гине. Чавен мьн ль тә нә. 
 
