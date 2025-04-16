@@ -4,7 +4,7 @@ layout: home
 permalink: yap
 ---
 # Här får du se portioner från min dagbok.
-[OCKSÅ KAN DU TA DIG TILLBAKA TILL LINKS-SIDAN1!!! <3](https://ronim-efrin.github.io/). (jag har tappat mitt förnuft ser du väl!)
+[OCKSÅ KAN DU TA DIG TILLBAKA TILL LINKS-SIDAN1!!! <3](https://ronim-efrin.github.io/). 
 
 ## Хöдан, әз бь тә ра мә 2025-03-29
 Әз дур ьм.  Әз ԝьнда бум. 
@@ -14,8 +14,7 @@ permalink: yap
 
 ## ugh 2025-03-20
 är trött i själen. gott nytt kurdiskt år dock. mycket kärlek till dem godhjärtade.
-![a](assets\bilder\kristetrandom\christu-newroz.jpg)
-![b](assets\bilder\kristetrandom\wereq-newroz.jpg)
+
 
 ## fffffffffff 2025-03-20
  Әз нә һатьм ве дьнйайе да кӧ хԝә бь хԝә бьжим?  тӧ щар дьбура мьн небу.  Әз парчәйәк ьм дь кӧлилкәке дә йа неԛәданди.  Хԝәде мьн әм радьхә,  йәк бь йәк.  Әз ньзаньм ирадәйа ԝи жь мьн чь йә.  Ԝи мьн жь бo тьште мәзьн амадә кьр,  тьштәке кӧ мьн тәшни ньзам чь йә.  Ԝи мьн амадә дькә,  ле эше мьн ԛәдьйа накә.  Ле әз һеви дькьм дь ԝи дә,  тьштәки дьн ниньм кӧ жьйана хԝә ль сәр бьхԝе.  Әв әвине кӧ әз жь кем кәсан рә дьгьрьм,  мәзьн ә.  Ле әв мәзьнтрин,  әвина Әԝ йәк ә.  Хԝәде маԛбӧл бьки. 
@@ -35,7 +34,3 @@ Long time no see! Eller vad säger man, haha! ######## ###### ######. Jag har ko
 ## Igår? 2024-06-17
 
 Дьһo? Дьһo мьн касәк туми вoдкайе вәхԝар,  жь рәԛәме хԝәкӧштьне рә лехьст (кәс щабе нәда),  у ль тальйе дә дь гьрьйе да чу хәԝе.  Рoжәк ә'ди бу. 
-
-![här är ett öga jag ritade för länge sen i skolan C:](oga-img.jpg)
-Här är ett öga jag ritade för länge sen i skolan. Det fick vara med. C:
-
