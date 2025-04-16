@@ -8,7 +8,7 @@ Introduction – lets start with my name.
 Ronî Şikak Mecîd | رۆنی شکاک مەجید | Рони Шькак Мәщид ☀️ In the three alphabets, in use, of Kurdish: Latin/Hawar, Soran, and Cyrillic.
 ## Beginning with the last part first. My tribal name and my surname – related to Mustafa Kemal and İsmail Enver Paşa? Surprisingly, yes.
 Kurdish: Mecîd; Ottoman Turkish: مجید
-My surname is Ottoman, given as an honorary title. Ironically, if I were to introduce myself by my surname, most modern day turks would laugh. It's because of ignorance and racism, obviously. Yet if you point that out, they will pretend to be angels. It's like all of my life experiences with you turks dissappear just because you said so! Most of them bear false, meaningless, and pointless names given after the surname reform in Turkey, in the year 1934. They would laugh at Envers first name too, stupid dogs. Enough with the venting.
+My surname is Ottoman, given as an honorary title. Ironically, if I were to introduce myself by my surname, most modern day turks would laugh. It's because of ignorance and racism, obviously. Yet if you point that out, they will pretend to be angels. It's like all of my life experiences with you turks dissappear just because you said so! Most of them bear false, meaningless, and pointless names given after the surname reform in Turkey, in the year 1934. They would laugh at Envers first name, stupid dogs. Why don't we laugh at all the caliphs called Abdülmecid too... Enough with the venting.
 
 Returning to the surname: an honorary title given to a (Kurdish: "Şikak") tribal member. 
 
