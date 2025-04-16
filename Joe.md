@@ -3,7 +3,7 @@ title: yap
 layout: home
 permalink: yap
 ---
-# Här får du se portioner från min dagbok.
+# Här får du se portioner från min dagbok. You can't translate this page, don't even bother trying. No chatgpt, no google translate, it doesn't work. You're not smart.
 [OCKSÅ KAN DU TA DIG TILLBAKA TILL LINKS-SIDAN1!!! <3](https://ronim-efrin.github.io/). 
 
 ## Хöдан, әз бь тә ра мә 2025-03-29
