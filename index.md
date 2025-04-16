@@ -3,39 +3,19 @@ title: kitab
 layout: home
 permalink: /
 ---
-# Här får du se portioner från min dagbok.
-[OCKSÅ KAN DU TA DIG TILLBAKA TILL LINKS-SIDAN1!!! <3](https://ronim-efrin.github.io/). (jag har tappat mitt förnuft ser du väl!)
+# This page will be about me. 
+Introduction – lets start with my name. 
+Ronî Şikak Mecîd | رۆنی شکاک مەجید | Рони Шькак Мәщид ☀️ In the three alphabets, in use, of Kurdish: Latin/Hawar, Soran, and Cyrillic.
+## Beginning with the last part first. My tribal name and my surname – related to Mustafa Kemal? Surprisingly, yes.
+Kurdish: Mecîd; Ottoman Turkish: مجید
+My surname is Ottoman, given as an honorary title. Ironically, if I were to introduce myself by my surname, most modern day turks would laugh. It's because of ignorance and racism, obviously. Yet if you point that out, they will pretend to be angels. It's like all of my life experiences with you turks dissappear just because you said so! Most of them bear false, meaningless, and pointless names given after the surname reform in Turkey, in the year 1934. Enough with the venting.
 
-## Хöдан, әз бь тә ра мә 2025-03-29
-Әз дур ьм.  Әз ԝьнда бум. 
- 
-## Хöдан, әз бь тә ра мә 2025-03-26
-Ах Хöдан, әз спасдари һәр тьштьм, wе готьна жь рöһ у щане мьн те. Ахинә, qеринә, рьзгарьйа тә ке кичаq бь мьн гине. Чавен мьн ль тә нә. 
+Returning to the surname: an honorary title given to a (Kurdish: "Şikak") tribel member. 
 
-## ugh 2025-03-20
-är trött i själen. gott nytt kurdiskt år dock. mycket kärlek till dem godhjärtade.
-![a](assets\bilder\kristetrandom\christu-newroz.jpg)
-![b](assets\bilder\kristetrandom\wereq-newroz.jpg)
+"Who are the Şikaks", you might ask. I will provide with some context.
+The Şikaks are Kurdish tribals who inhabit the modern day regions of Colemêrg/Hakkari and Urmiyê/Urmia, with a significant migrational population to Northern Aleppo/Efrîn. It is one of the five most ancient Kurdish clans, still speaking the native Kurmancî with a majority. Up until and beyond the Armenian genocide, the Şikak clan was ruled by a tribal leader. Its last clan-head being Simko Axa/Agha/Ağa, or Simko of the Şikaks, as were his honorary name by the Ottomans. It was a fighting clan, and allies of the Ottoman Turks. They took up arms against the Azeri Qajars of Iran, the ruling dynasty – with extremely ugly women, I might add. Around the time of the Armenian genocide, Simko Axa took up arms against the Qajars, with an army of 12,000 thousand man strong, most of which were Ottoman mercenaries being Alevi Turks of majority. He conquered territories, vast. The entirety of the modern province of "Western Azerbaijan" in Iran was conquered within a year, and he was making his way to Tabriz. Mustafa Kemal was the Ottoman general who was assigned to the Şikak revolt, helping the Kurds against Azeri rule. 
 
-## fffffffffff 2025-03-20
- Әз нә һатьм ве дьнйайе да кӧ хԝә бь хԝә бьжим?  тӧ щар дьбура мьн небу.  Әз парчәйәк ьм дь кӧлилкәке дә йа неԛәданди.  Хԝәде мьн әм радьхә,  йәк бь йәк.  Әз ньзаньм ирадәйа ԝи жь мьн чь йә.  Ԝи мьн жь бo тьште мәзьн амадә кьр,  тьштәке кӧ мьн тәшни ньзам чь йә.  Ԝи мьн амадә дькә,  ле эше мьн ԛәдьйа накә.  Ле әз һеви дькьм дь ԝи дә,  тьштәки дьн ниньм кӧ жьйана хԝә ль сәр бьхԝе.  Әв әвине кӧ әз жь кем кәсан рә дьгьрьм,  мәзьн ә.  Ле әв мәзьнтрин,  әвина Әԝ йәк ә.  Хԝәде маԛбӧл бьки. 
- 
- Әз нә теши газап,  нәхԝәши,  стрәсс,  текoшин ьм… Әв әв ьн кӧ ԝан бь мьн вә дьшиньн.  Әз хԝә дьгьрьм жь бo ԝан кӧ пеԝистьйе һәнә.  Әз терахьз дькьм кӧ аликар бькьм.  Әз дитьне,  рoнаһи дьгәрә дь нав тари дә.  Әв нә жь бo һәр кәс ә.  Әз хԝә әзаф дькьне,  иһтьйаща мьн бь һез ә.  Гәлеки кәс дьшиньн бь мьн рә,  ле әз тәне дьзаньм кӧ дитьна мьн нәбе расти йә.  Әз хәләтьйе дикарьм,  һәму тьшт у гoтьнен ԝан дькарьн пеш мә тари бьбьн.  Гәлo әз әзаф ьм ан жи әԝ кӧ мьн дьгьрә әзаф ә? Әз дькем.  Әз һеви дькьм Хԝәде мьн бьгьрә. 
- 
- Кәсе мьн надьйә гуһ кӧ мьн ль сәр хԝә дьахьвьм.  Әз э диса нә бьбежьм.  Тәне Имманӧәл дьзанә әз ки мә.  Ки йә Әԝ? Хаще хԝә бьгьрә у э бьбини. 
- 
- Ә жь дьле хԝә бьхә,  әй Хԝәде!  Амән.  
+The father of my surname, (Kurdish: "Hec Mecîd", transliteration: Hajj Majid). We do not know of his name prior to the reception of the prestigious name "Mecîd", one of the many names of the Sunni God, meaning "illustrious." The knowledge of why he earned this title has been lost to history, and what has been passed on to us is of dengbêj. Hec Mecîd traveled to Mecca, obviously, not only because of the prefix "Hec." As a native of Urmiyê, he settled in Efrîn region some time after the defeat of the Şikaks in Western Azerbaijan. The sum of 12,000 troops were massacered, with Alevi Turks making up the majority. Ironic how Azeris and Turks claim brotherhood whilst not too long ago they commited bloody genocides against each other. Through the seed of Hec Mecîd, the Ottoman title has been passed on to me. 
 
-## IDAG!? HEMSIDANS REVIVE!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!! 2025-03-15
-Long time no see! Eller vad säger man, haha! ######## ###### ######. Jag har kommit så långt. Nya @@@@@@@ upplevda, gamla bortglömda. Jag ###### för jag ser skillnaden, p.ga. dagboken. @@@@@@@@@@@@@@@@. @@@@@@@@@@@@@. Jag älskar dig min Herre! Massa kramar till dig :X.  Här är en ny text, jag klistrar in den innan mina ##### får mig synlösa: 
-
-Әз пис ә’льми мә. Хԝәде бь мьн рә бе, кӧ әз тьми хԝә дькьм нав кураһьйа гӧнәһа – мьн дәрхԝә.     
-Чә'в жь мьн һәзкьрьнә, ньзаньм чаԝа хԝә жь писише хәласкьм.   Ԝе мьн кьшандьйә кураһьйа дьле хԝә, кӧ межи мьн ԝәстьйайи. Әԝйәка ԛиза дьжмьнанә, ве нас у гӧманә.  
-
-## Igår? 2024-06-17
-
-Дьһo? Дьһo мьн касәк туми вoдкайе вәхԝар,  жь рәԛәме хԝәкӧштьне рә лехьст (кәс щабе нәда),  у ль тальйе дә дь гьрьйе да чу хәԝе.  Рoжәк ә'ди бу. 
-
-![här är ett öga jag ritade för länge sen i skolan C:](oga-img.jpg)
-Här är ett öga jag ritade för länge sen i skolan. Det fick vara med. C:
-
+## My given name, Ronî, and its meaning. This will be the simpler part of the paragraph. 
+My given name (Kurdish: "Ronî"), meaning light and wise/knowledgeable. It was given to me by my mother, may God bless her pure heart.
