@@ -10,7 +10,7 @@ Ronî Şikak Mecîd | رۆنی شکاک مەجید | Рони Шькак Мәщ�
 Kurdish: Mecîd; Ottoman Turkish: مجید
 My surname is Ottoman, given as an honorary title. Unlike the meaningless gypsy names most Turks have today that come from the 1934 name reform.
 
-Returning to the surname: an honorary title given to a (Kurdish: "Şikak") tribal member. 
+An honorary title given to a (Kurdish: "Şikak") tribal member. 
 
 "Who are the Şikaks", you might ask. I will provide with some context.
 The Şikaks are Kurdish tribals who inhabit the modern day regions of Colemêrg/Hakkari and Urmiyê/Urmia, with a significant migrational population to Northern Aleppo/Efrîn. It is one of the five most ancient Kurdish clans, still speaking the native Kurmancî with a majority. Up until and beyond the Armenian genocide, the Şikak clan was ruled by a tribal leader. Its last clan-head being Simko Axa/Agha/Ağa, or Simko of the Şikaks, as was his honorary name by the Ottomans. It was a fighting clan, and allies of the Ottoman Turks. They took up arms against the Azeri Qajars of Iran, the ruling dynasty – with extremely ugly women, I might add. Around the time of the Armenian genocide, Simko Axa took up arms against the Qajars, with an army of 12,000 thousand man strong, most of which were Ottoman mercenaries, being Alevi Turks of majority. He conquered territories, vast. The entirety of the modern province of "Western Azerbaijan" in Iran was conquered within a year, and he was making his way to Tabriz. Mustafa Kemal, İsmail Enver Paşa, and Kâzım Karabekir were the Ottoman generals who were assigned to the Şikak revolt, helping the Kurds against Azeri rule. 
