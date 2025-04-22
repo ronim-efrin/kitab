@@ -20,3 +20,8 @@ The father of my surname, (Kurdish: "Hec Mecîd", transliteration: Hajj Majid). 
 
 ## My given name, Ronî, and its meaning. This will be the simpler part of the paragraph. 
 My given name (Kurdish: "Ronî"), meaning light and wise/knowledgeable. It was given to me by my mother, may God bless her pure heart.
+
+## Assimilation
+As for the integration of different ethnicities into a particular culture – it's one of the worst corruptions of all. For a man dying with honor to preserve what God gave him, how God made him, is the definitive answer to the question. For God did not strike down those who built the tower of Babel out of comedy. There's a corruption in man which He demolished, and that corruption is what assimilation is trying to revive. Even if we exclude the Biblical answer, what is there for assimilation that independence doesn't solve, that autonomy doesn't solve. For assimilation is not only a subjugation of man, but of an entire kind and culture. If there is no one better than the other, then why proceed with all of this? There will be tribalism, but only out of evil. Adam did not subjugate Eve, neither his own children, but the corruption took on Cain in the presence of his brother Abel. Cain slaying his own brother out of envy, among other beastly traits. What are you that supports all of this, none other than a man with beastly traits. It is for your own benefit that you seek this. 
+
+This does not mean the full isolation of each according to his kind. Rather it is a respect, a covenant between men as was between God and man. We again return to tribalism with those who seek others solely because they're of their own kind. It is for the benefit of the devil. There is no superiority of one over the other. 
