@@ -8,9 +8,9 @@ Since I want to make it easier for whomever is stalking me, this content will be
 
 All of this is handwritten, to show off my linguistical skills (jk I just like being myself). I set up for myself this, and the links website, a while ago – though they haven't been in use for a looong time. If I had people around me who actually cared for me — instead of (insert the part where I raged that I removed) — they probably would have asked, “Why do you know so much?” I would have answered, “Because I enjoy learning.” Sadly, reality differs and no one cares about me. (insert that funny picture of the wolf that is popular on tiktok)
 
-Q&A
-*Is this cringe.*
-Yes, yes it is.
+Q&A <br>
+*Is this cringe.* <br>
+Yes, yes it is. <br>
 
 Introduction – lets start with my name. 
 Ronî Şikak Mecîd | رۆنی شکاک مەجید | Рони Шькак Мәщид ☀️ In the three alphabets, in use, of Kurdish: Latin/Hawar, Soran, and Cyrillic. Yes, I did in fact teach myself all of them. Feeling useless? We haven't even begun!
