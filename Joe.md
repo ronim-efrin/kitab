@@ -1,36 +1,25 @@
 ---
-title: yap
+title: prayer
 layout: home
-permalink: yap
+permalink: prayer
 ---
-# Här får du se portioner från min dagbok. You can't translate this page, don't even bother trying. No chatgpt, no google translate. It doesn't work. You're not smart.
-[OCKSÅ KAN DU TA DIG TILLBAKA TILL LINKS-SIDAN1!!! <3](https://ronim-efrin.github.io/). 
 
-## Хöдан, әз бь тә ра мә 2025-03-29
-Әз дур ьм.  Әз ԝьнда бум. 
- 
-## Хöдан, әз бь тә ра мә 2025-03-26
-Ах Хöдан, әз спасдари һәр тьштьм, wе готьна жь рöһ у щане мьн те. Ахинә, qеринә, рьзгарьйа тә ке кичаq бь мьн гине. Чавен мьн ль тә нә. 
+**Psalm 50** *(good everyday psalm for repentance)*
+1 For the end, a Psalm of David, 2 when Nathan the prophet came to him, when he had gone in to Bersabee.
+3 Have mercy upon me, O God, according to thy great mercy; and according to the multitude of thy compassions blot out my transgression. 4 Wash me thoroughly from mine iniquity, and cleanse me from my sin.
+5 For I am conscious of mine iniquity; and my sin is continually before me. 6 Against thee only have I sinned, and done evil before thee: that thou mightest be justified in thy sayings, and mightest overcome when thou art judged. 7 For, behold, I was conceived in iniquities, and in sins did my mother conceive me.
+8 For, behold, thou lovest truth: thou hast manifested to me the secret and hidden things of thy wisdom. 9 Thou shalt sprinkle me with hyssop, and I shall be purified: thou shalt wash me, and I shall be made whiter than snow. 10 Thou shalt cause me to hear gladness and joy: the afflicted bones shall rejoice. 11 Turn away thy face from my sins, and blot out all mine iniquities. 12 Create in me a clean heart, O God; and renew a right spirit in my inward parts. 13 Cast me not away from thy presence; and remove not thy Holy Spirit from me. 14 Restore to me the joy of thy salvation: establish me with thy *directing Spirit.
+15 Then will I teach transgressors thy ways; and ungodly men shall turn to thee. 16 Deliver me from blood-guiltiness, O God, the God of my salvation: and my tongue shall joyfully declare thy righteousness. 17 O Lord, thou shalt open my lips; and my mouth shall declare thy praise. 18 For if thou desiredst sacrifice, I would have given it: thou wilt not take pleasure in whole-burnt-offerings. 19 Sacrifice to God is a broken spirit: a broken and humbled heart God will not despise.
+20 Do good, O Lord, to Sion in thy good pleasure; and let the walls of Jerusalem be built. 21 Then shalt thou be pleased with a sacrifice of righteousness, †offering, and whole-burnt-sacrifices: then shall they offer calves upon thine altar.
 
-## ugh 2025-03-20
-är trött i själen. gott nytt kurdiskt år dock. mycket kärlek till dem godhjärtade.
+**Psalm 90** *(song for praise and protection)*
+1 Praise of a Song, by David.
+He that dwells in the help of the Highest, shall sojourn under the shelter of the God of heaven. 2 He shall say to the Lord, Thou art my helper and my refuge: my God; I will hope in him. 3 For he shall deliver thee from the snare of the hunters, from every troublesome matter. 4 He shall overshadow thee with his shoulders, and thou shalt trust under his wings: his truth shall cover thee with a shield. 5 Thou shalt not be afraid of terror by night; nor of the arrow flying by day; 6 nor of the evil *thing that walks in darkness; nor of calamity, and the evil spirit at noon-day. 7 A thousand shall fall at thy side, and ten thousand at thy right hand; but it shall not come nigh thee. 8 Only with thine eyes shalt thou observe and see the reward of sinners.
+9 For thou, O Lord, art my hope: thou, my soul, hast made the Most High thy refuge. 10 No evils shall come upon thee, and no scourge shall draw nigh to thy dwelling. 11 For he shall give his angels charge concerning thee, to keep thee in all thy ways. 12 ✡ They shall bear thee up on their hands, lest at any time thou dash thy foot against a stone. 13 Thou shalt tread on the asp and basilisk: and thou shalt trample on the lion and dragon.
+14 For he has hoped in me, and I will deliver him: I will protect him, because he has known my name. 15 He shall call upon me, and I will hearken to him: I am with him in affliction; and I will deliver him, and glorify him. 16 I will satisfy him with length of days, and shew him my salvation.
 
-
-## fffffffffff 2025-03-20
- Әз нә һатьм ве дьнйайе да кӧ хԝә бь хԝә бьжим?  тӧ щар дьбура мьн небу.  Әз парчәйәк ьм дь кӧлилкәке дә йа неԛәданди.  Хԝәде мьн әм радьхә,  йәк бь йәк.  Әз ньзаньм ирадәйа ԝи жь мьн чь йә.  Ԝи мьн жь бo тьште мәзьн амадә кьр,  тьштәке кӧ мьн тәшни ньзам чь йә.  Ԝи мьн амадә дькә,  ле эше мьн ԛәдьйа накә.  Ле әз һеви дькьм дь ԝи дә,  тьштәки дьн ниньм кӧ жьйана хԝә ль сәр бьхԝе.  Әв әвине кӧ әз жь кем кәсан рә дьгьрьм,  мәзьн ә.  Ле әв мәзьнтрин,  әвина Әԝ йәк ә.  Хԝәде маԛбӧл бьки. 
- 
- Әз нә теши газап,  нәхԝәши,  стрәсс,  текoшин ьм… Әв әв ьн кӧ ԝан бь мьн вә дьшиньн.  Әз хԝә дьгьрьм жь бo ԝан кӧ пеԝистьйе һәнә.  Әз терахьз дькьм кӧ аликар бькьм.  Әз дитьне,  рoнаһи дьгәрә дь нав тари дә.  Әв нә жь бo һәр кәс ә.  Әз хԝә әзаф дькьне,  иһтьйаща мьн бь һез ә.  Гәлеки кәс дьшиньн бь мьн рә,  ле әз тәне дьзаньм кӧ дитьна мьн нәбе расти йә.  Әз хәләтьйе дикарьм,  һәму тьшт у гoтьнен ԝан дькарьн пеш мә тари бьбьн.  Гәлo әз әзаф ьм ан жи әԝ кӧ мьн дьгьрә әзаф ә? Әз дькем.  Әз һеви дькьм Хԝәде мьн бьгьрә. 
- 
- Кәсе мьн надьйә гуһ кӧ мьн ль сәр хԝә дьахьвьм.  Әз э диса нә бьбежьм.  Тәне Имманӧәл дьзанә әз ки мә.  Ки йә Әԝ? Хаще хԝә бьгьрә у э бьбини. 
- 
- Ә жь дьле хԝә бьхә,  әй Хԝәде!  Амән.  
-
-## IDAG!? HEMSIDANS REVIVE!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!! 2025-03-15
-Long time no see! Eller vad säger man, haha! ######## ###### ######. Jag har kommit så långt. Nya @@@@@@@ upplevda, gamla bortglömda. Jag ###### för jag ser skillnaden, p.ga. dagboken. @@@@@@@@@@@@@@@@. @@@@@@@@@@@@@. Jag älskar dig min Herre! Massa kramar till dig :X.  Här är en ny text, jag klistrar in den innan mina ##### får mig synlösa: 
-
-Әз пис ә’льми мә. Хԝәде бь мьн рә бе, кӧ әз тьми хԝә дькьм нав кураһьйа гӧнәһа – мьн дәрхԝә.     
-Чә'в жь мьн һәзкьрьнә, ньзаньм чаԝа хԝә жь писише хәласкьм.   Ԝе мьн кьшандьйә кураһьйа дьле хԝә, кӧ межи мьн ԝәстьйайи. Әԝйәка ԛиза дьжмьнанә, ве нас у гӧманә.  
-
-## Igår? 2024-06-17
-
-Дьһo? Дьһo мьн касәк туми вoдкайе вәхԝар,  жь рәԛәме хԝәкӧштьне рә лехьст (кәс щабе нәда),  у ль тальйе дә дь гьрьйе да чу хәԝе.  Рoжәк ә'ди бу. 
+**Psalm 5** *(song for protection, obedience, and praise)*
+1 For the end, a Psalm of David, concerning her that inherits.
+2 Hearken to my words, O Lord, *attend to my cry. 3 Attend to the voice of my supplication, my King, and my God: for to thee, O Lord, will I pray. 4 In the morning thou shalt hear my voice: in the morning will I wait upon thee, and will look up. 5 For thou art not a God that desires iniquity; neither shall the worker of wickedness dwell with thee. 6 Neither shall the transgressors continue in thy sight: thou hatest, O Lord, all them that work iniquity. 7 Thou wilt destroy all that speak falsehood: the Lord abhors the bloody and deceitful man. 8 But I will enter into thine house in the multitude of thy mercy: I will worship in thy fear toward thy holy temple.
+9 Lead me, O Lord, in thy righteousness because of mine enemies; make my way plain before thy face. 10 For there is no truth in their mouth; their heart is vain; their ✡ throat is an open sepulchre; with their tongues they have used deceit. 11 Judge them, O God; let them †fail of their counsels: cast them out according to the abundance of their ungodliness; for they have provoked thee, O Lord.
+12 But let all that trust on thee be glad in thee: they shall exult for ever, and thou shalt dwell among them; and all that love thy name shall rejoice in thee. 13 For thou, Lord, shalt bless the righteous: thou hast ‡compassed us as with a shield of favour.
