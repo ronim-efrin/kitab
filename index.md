@@ -12,7 +12,7 @@ Q&A <br>
 *Is this cringe?* <br>
 Yes, yes it is. <br>
 
-**Introduction – lets start with my name.** 
+**Introduction – lets start with my name.** <br> 
 Ronî Şikak Mecîd | رۆنی شکاک مەجید | Рони Шькак Мәщид ☀️ In the three alphabets, in use, of Kurdish: Latin/Hawar, Soran, and Cyrillic. Yes, I did in fact teach myself all of them. Feeling useless? We haven't even begun!
 Beginning with the last part first. My tribal name and my surname – related to Mustafa Kemal and İsmail Enver Paşa? Surprisingly, yes!
 Kurdish: Mecîd; Ottoman Turkish: مجید
@@ -25,7 +25,6 @@ The Şikaks are Kurdish tribals who inhabit the modern day regions of Colemêrg/
 [Source](https://en.wikipedia.org/wiki/Simko_Shikak_revolt_(1918–1922))
 
 The father of my surname, (Kurdish: "Hec Mecîd", transliteration: Hajj Majid). We do not know of his name prior to the reception of the name "Mecîd", one of the many names of the Sunni God, meaning "illustrious." Hec Mecîd traveled to Mecca, obviously, not only because of the prefix "Hec." Through the seed of Hec Mecîd, the Ottoman title has been passed on to me. I'm not ashamed of my surname, to any jew that's chuckling. Goldstein (points and laughs).
-
-## My given name, Ronî, and its meaning. This will be the simpler part of the paragraph. 
+ 
 My given name (Kurdish: "Ronî"), meaning light and wise/knowledgeable. It was given to me by my mother, may God bless her pure heart.
 
