@@ -12,7 +12,7 @@ Q&A <br>
 *Is this cringe?* <br>
 Yes, yes it is. <br>
 
-#Introduction – lets start with my name. 
+# Introduction – lets start with my name. 
 Ronî Şikak Mecîd | رۆنی شکاک مەجید | Рони Шькак Мәщид ☀️ In the three alphabets, in use, of Kurdish: Latin/Hawar, Soran, and Cyrillic. Yes, I did in fact teach myself all of them. Feeling useless? We haven't even begun!
 Beginning with the last part first. My tribal name and my surname – related to Mustafa Kemal and İsmail Enver Paşa? Surprisingly, yes!
 Kurdish: Mecîd; Ottoman Turkish: مجید
