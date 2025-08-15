@@ -4,23 +4,13 @@ layout: home
 permalink: /
 ---
 # This page will be about me.
-Since I want to make it easier for whomever is stalking me, this content will be in English. If you get bored of the amount of "yap" then I'm sorry for you, find someone else to check upon. I am a nerd, corny, and extremely good looking (thanks ladies). All of this is handwritten, to show off my linguistical skills (jk I just like being myself). I set up for myself this, and the links website, a while ago – though they haven't been in use for a looong time. If I had people around me who actually cared for me — instead of only wanting sex, or being sick enough to try to lure a devoted Christian into lust **(no I'm not referring to you IYKYK)** — they probably would have asked, “Why do you know so much?” I would have answered, “Because I enjoy learning.” Sadly, reality differs and no one cares about me. (insert that funny picture of the wolf that is popular on tiktok) 
+Since I want to make it easier for whomever is stalking me, this content will be in English. If you get bored of the amount of "yap" then I'm sorry for you, find someone else to check upon. I am a nerd, corny, and extremely good looking (thanks ladies). I also play guitar, drive a Benz, and am around 6'1 yankee meters in height, to whomever that wants to stand in line. *There is no line.*
+
+All of this is handwritten, to show off my linguistical skills (jk I just like being myself). I set up for myself this, and the links website, a while ago – though they haven't been in use for a looong time. If I had people around me who actually cared for me — instead of (insert the part where I raged that I removed) — they probably would have asked, “Why do you know so much?” I would have answered, “Because I enjoy learning.” Sadly, reality differs and no one cares about me. (insert that funny picture of the wolf that is popular on tiktok)
 
 Q&A
-# Is this cringe. 
-Yes, yes it is. 
-
-# Do I take criticism from people who are useless? 
-No, I do not. 
-
-# Do I judge? 
-Not as much as you think, no. (Matthew 7:3-5)
-
-# Am I serious with all of this?
-What the fuck do you think? 😂
-
-# Do I love whomever that is reading this?
-Of course I do. Who else would waste time on this? ❤️
+*Is this cringe.*
+Yes, yes it is.
 
 Introduction – lets start with my name. 
 Ronî Şikak Mecîd | رۆنی شکاک مەجید | Рони Шькак Мәщид ☀️ In the three alphabets, in use, of Kurdish: Latin/Hawar, Soran, and Cyrillic. Yes, I did in fact teach myself all of them. Feeling useless? We haven't even begun!
