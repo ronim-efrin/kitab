@@ -4,7 +4,7 @@ layout: home
 permalink: prayer
 ---
 
-**Psalm 50** *(good everyday psalm for repentance)*
+# **Psalm 50** *(good everyday psalm for repentance)*
 <br>1 For the end, a Psalm of David, 
 <br>2 when Nathan the prophet came to him, when he had gone in to Bersabee.
 <br>3 Have mercy upon me, O God, according to thy great mercy; and according to the multitude of thy compassions blot out my transgression. 
@@ -27,7 +27,7 @@ permalink: prayer
 <br>20 Do good, O Lord, to Sion in thy good pleasure; and let the walls of Jerusalem be built. 
 <br>21 Then shalt thou be pleased with a sacrifice of righteousness, †offering, and whole-burnt-sacrifices: then shall they offer calves upon thine altar.
 
-<br>**Psalm 90** *(song for praise and protection)*
+<br># **Psalm 90** *(song for praise and protection)*
 <br>1 Praise of a Song, by David. He that dwells in the help of the Highest, shall sojourn under the shelter of the God of heaven. 
 <br>2 He shall say to the Lord, Thou art my helper and my refuge: my God; I will hope in him. 
 <br>3 For he shall deliver thee from the snare of the hunters, from every troublesome matter. 
@@ -45,7 +45,7 @@ permalink: prayer
 <br>15 He shall call upon me, and I will hearken to him: I am with him in affliction; and I will deliver him, and glorify him. 
 <br>16 I will satisfy him with length of days, and shew him my salvation.
 
-<br>**Psalm 5** *(song for protection, obedience, and praise)*
+<br># **Psalm 5** *(song for protection, obedience, and praise)*
 <br>1 For the end, a Psalm of David, concerning her that inherits.
 <br>2 Hearken to my words, O Lord, *attend to my cry. 
 <br>3 Attend to the voice of my supplication, my King, and my God: for to thee, O Lord, will I pray. 
@@ -60,7 +60,7 @@ permalink: prayer
 <br>12 But let all that trust on thee be glad in thee: they shall exult for ever, and thou shalt dwell among them; and all that love thy name shall rejoice in thee. 
 <br>13 For thou, Lord, shalt bless the righteous: thou hast ‡compassed us as with a shield of favour.
 
-<br>**Psalm 22** *(golden psalm for anxiety)*
+<br># **Psalm 22** *(golden psalm for anxiety)*
 <br>1 A Psalm of David. The Lord tends me as a shepherd, and I shall want nothing. 
 <br>2 In a place of green grass, there he has made me dwell: he has nourished me by the water of rest. 
 <br>3 He has restored my soul: he has guided me into the paths of righteousness, for his name's sake. 
