@@ -4,16 +4,10 @@ layout: home
 permalink: /
 ---
 **This page will be about me.** <br>
-Since I want to make it easier for whomever is stalking me, this content will be in English. If you get bored of the amount of "yap" then I'm sorry for you, find someone else to check upon. I am a nerd, corny, and extremely good looking (thanks ladies). I also play guitar, drive a Benz, and stand about 6’1” (Yankee meters) tall — for whoever wants to get in line. ***There is no line.*** 
+Since I want to make it easier for whomever is stalking me, this content will be in English. If you get bored of the amount of "yap" then I'm sorry for you, find someone else to check upon. I am a nerd, corny, and extremely good looking (thanks ladies). I also play guitar, drive a Benz, and stand tall — for whoever wants to get in line. ***There is no line.*** 
 
-All of this is handwritten, to show off my linguistical skills (jk I just like being myself). I set up for myself this, and the links website, a while ago – though they haven't been in use for a looong time. If I had people around me who actually cared for me — instead of (insert the part where I raged that I removed) — they probably would have asked, “Why do you know so much?” I would have answered, “Because I enjoy learning.” Sadly, reality differs and no one cares about me. (insert that funny picture of the wolf that is popular on tiktok)
-
-Q&A <br>
-*Is this cringe?* <br>
-Yes, yes it is. <br>
-
-**Introduction – lets start with my name.** <br> 
-Ronî Şikak Mecîd | رۆنی شکاک مەجید | Рони Шькак Мәщид ☀️ In the three alphabets, in use, of Kurdish: Latin/Hawar, Soran, and Cyrillic. Yes, I did in fact teach myself all of them. Feeling useless? We haven't even begun!
+**My name** <br> 
+Ronî Şikak Mecîd | رۆنی شکاک مەجید | Рони Шькак Мәщид ☀️ In the three alphabets, in use, of Kurdish: Latin/Hawar, Soran, and Cyrillic. Yes, I did in fact teach myself all of them.
 Beginning with the last part first. My tribal name and my surname – related to Mustafa Kemal and İsmail Enver Paşa? Surprisingly, yes!
 Kurdish: Mecîd; Ottoman Turkish: مجید
 My surname is Ottoman, given as an honorary title. Unlike the meaningless gypsy names most Turks have today that come from the 1934 name reform.
@@ -27,4 +21,3 @@ The Şikaks are Kurdish tribals who inhabit the modern day regions of Colemêrg/
 The father of my surname, (Kurdish: "Hec Mecîd", transliteration: Hajj Majid). We do not know of his name prior to the reception of the name "Mecîd", one of the many names of the Sunni God, meaning "illustrious." Hec Mecîd traveled to Mecca, obviously, not only because of the prefix "Hec." Through the seed of Hec Mecîd, the Ottoman title has been passed on to me. I'm not ashamed of my surname, to any jew that's chuckling. Goldstein (points and laughs).
  
 My given name (Kurdish: "Ronî"), meaning light and wise/knowledgeable. It was given to me by my mother, may God bless her pure heart.
-
