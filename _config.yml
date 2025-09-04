@@ -7,7 +7,7 @@ header_pages:
  # - about.md
  # - gallery.md
   - Joe.md
- # - books.md
+  - books.md
 
 footer: 'ta mig tillbaka till <a href="https://ronim-efrin.github.io">links-sidan</a>'
 
