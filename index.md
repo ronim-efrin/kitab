@@ -5,6 +5,7 @@ permalink: /
 ---
 **This page will be about me.** There are different pages in the top right corner. <br>
 I set this up by code, on github precisely. Though the design is not mine, couldn't be bothered. <br>
+
 Since I want to make it easier for whomever is stalking me, this content will be in English. If you get bored of the amount of "yap" then I'm sorry for you, find someone else to check upon. I am a nerd, corny, and extremely good looking (thanks ladies). I also play guitar, drive a Benz, and stand tall — for whoever wants to get in line. ***There is no line.*** 
 
 **My name** <br> 
