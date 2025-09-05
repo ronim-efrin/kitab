@@ -35,7 +35,7 @@ Dishonesty, like any sin, has consequences, and the lost generation fails to con
 
 # Future projects
 
-**Obsession** 
+**Obsession** <br>
 Obsession is a word thrown around a lot, but in reality there is a true strict definition. I’m not here to explain the word, you are welcome to look for it yourself. This is a very broad topic, but I will write about the obsession of men in women.
 
 The state of mind of a man that obsesses over a woman. Commonly there are two roots. I will only dive into these, and only surface level. This is not about men with mental issues. 
