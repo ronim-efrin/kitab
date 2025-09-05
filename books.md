@@ -32,3 +32,15 @@ When the subject chooseth to submit to the decision, i.e. the will of the woman,
 Yet, acting in hardheartedness, in opposition, doesn’t grant any favors either, she will assume that you’re dull, and fail to understand what she has to say. Inconsiderate in other words, among other things. Revealing your understanding of the situation will lead her to lie more. There is no achievement to acquire in the case of the subject, you will lose. <br>
 
 Dishonesty, like any sin, has consequences, and the lost generation fails to consider this. They live out of their own understanding, and refuse to submit to the Truth. The Christian will not fight in this confrontation, a childish fight. In my case, it was and is difficult to let go of the people which riseded in my love. You want to help them, you want to be there for them, it is a Christian fruit to be selfless. Yet, what the Lord wills happens no matter ones own understanding of the situation. God knows whether they are hurting themselves or not. It is not up to the Christian to oppose the will of God, no creation should question his Creator. أَسْلَمْتُ لِرَبِّ الْعَالَمِينَ
+
+# Future projects
+
+**Obsession** 
+Obsession is a word thrown around a lot, but in reality there is a true strict definition. I’m not here to explain the word, you are welcome to look for it yourself. This is a very broad topic, but I will write about the obsession of men in women.
+
+The state of mind of a man that obsesses over a woman. Commonly there are two roots. I will only dive into these, and only surface level. This is not about men with mental issues. 
+*I might do more, or change some things up. I'll see what experiences catch my attention.*
+
+The state of turbulence, and hypoestrogenism. 
+
+to be continued...
