@@ -23,7 +23,7 @@ Lying, whether to protect oneself, ones understanding, ones position or decision
 
 This role can of course apply to any gender – since I, a male, encounter this with women – I will write out of my common perspective. <br>
 
-The woman has the belief that telling the lie is straightforward, and fails to consider anything else. Seriously, a dense position, which mostly is synthesized out of desperation, whether the desperation is justified or not. Most men fight this, spend their energy, a currency, on a decision set in stone. The woman can change her mind, more often than a man does. Yet, if she chose confrontation, the woman in question has been thinking about the subject-matter prior to it. The likeliness that the opposing position to take seed in her mind is much unlikely. 
+The woman has the belief that telling the lie is straightforward, and fails to consider anything else. Seriously, a dense position, which mostly is synthesized out of desperation, whether the desperation is justified or not. Most men fight this, spend their energy, a currency, on a decision set in stone. The woman can change her mind, more often than a man does. Yet, if she chose confrontation, the woman in question has been thinking about the subject-matter prior to it. The likeliness for the opposing position to take seed in her mind is much unlikely. 
 
 *The meeting of minds is possible, but certain personality traits can affect this.*
 
