@@ -17,7 +17,7 @@ The subject, if Christian, will not need to prove any superiority. In the essenc
 
  **Lying in a synthetic position of superiority and baseless belief of understanding above the subject.** <br> This is an active project, it is not finished. <br> September 5th, Friday noon.
 
-As the prior paragraph mostly occurs in men, this phenomenon is something I mostly see in women. Also prevalent in high estrogen men, though it is much less common. <br>
+As the phenomenon in the prior paragraph mostly occurs in men, this particularly is something I mostly see in women. Also prevalent in high estrogen men, though it is much less common. <br>
 
 Lying, whether to protect oneself, ones understanding, ones position or decision. It is a common phenomena, which occurs mostly when the woman in question believes that her authority or understanding is above the man, the subject, which she is opposing. The opposition of the woman, in most cases, is fueled by emotions, as most encounters with the common woman. <br>
 
