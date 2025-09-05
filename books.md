@@ -7,9 +7,7 @@ permalink: sandbox
 # Sub-humanism of modern man
 Prior to starting this paragraph, I want to confess my sins. I want to confess that this is a wrong-doing. I know that coming to this conclusion is a result of corruption on my part. There is a lot to be said about this, but I will leave it for another time.
 
-**Expectations of superiority in man, and the results thereof** <br>
-This is an active project, it is not finished. <br>
-September 4th, Thursday night. <br>
+**Expectations of superiority in man, and the results thereof** <br> This is an active project, it is not finished. <br> September 4th, Thursday night. <br>
 
 Expectations are human, there are a plethora – many types of expectations exist. I will start off with talking about the expectations of superiority, and I’ll see how this veers. 
 
@@ -17,9 +15,7 @@ Modern man, when he sees someone who is above him, he doubts, not himself but ra
 
 The subject, if Christian, will not need to prove any superiority. In the essence of humility, a Christian will choose to be inferior, even if there is nothing that suggests that it is the case. The Christian, even in struggle, will not react to his primal instincts, because he is made in the image of God. Not filthed up, not oxidized – the grade differs in individuals. The submission to God demands a pure state of self, to exercise His energies, and to take part of what is holy. Purity comes from God and the morality He has set, the law which He hath engraved. Man loses this in the duration of his life, unless he chooseth to submit. 
 
- **Lying in a synthetic position of superiority and baseless belief of understanding above the subject.** <br>
- This is an active project, it is not finished. <br>
- September 5th, Friday noon.
+ **Lying in a synthetic position of superiority and baseless belief of understanding above the subject.** <br> This is an active project, it is not finished. <br> September 5th, Friday noon.
 
 As the prior paragraph mostly occurs in men, this phenomenon is something I mostly see in women. Also prevalent in high estrogen men, though it is much less common. <br>
 
