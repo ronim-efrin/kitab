@@ -76,7 +76,7 @@ permalink: prayer
 <br>4 And he put a new song into my mouth, even a hymn to our God: many shall see it, and fear, and shall hope in the Lord. 
 <br>5 Blessed is the man whose hope is the name of the Lord, and who has not regarded vanities and false frenzies.
 <br>6 O Lord my God, thou hast multiplied thy wonderful works, and in thy thoughts there is none who shall be likened to thee: I declared and spoke of them: they exceeded number. 
-<br>7 ✡ Sacrifice and offering thou wouldest not; but a body hast thou prepared me: whole-burnt-offering and sacrifice for sin thou didst not require.
+<br>7 Sacrifice and offering thou wouldest not; but a body hast thou prepared me: whole-burnt-offering and sacrifice for sin thou didst not require.
 <br>8 Then I said, Behold, I *come: in the volume of the book it is written concerning me, 
 <br>9 I desired to do thy will, O my God, and thy law in the midst of mine heart. 
 <br>10 I have preached righteousness in the great congregation; lo! I will not refrain my lips; O Lord, thou knowest my righteousness. 
