@@ -12,7 +12,7 @@ No one knows me, not even the guy that was supposed to be my best friend. Yet, i
 
 She was a log, a complete stock, dull, when writing to me on messages. Her assumptions were completely retarded. Unironically looking back at it, I shouldn’t been that active on WhatsApp. Obviously I overlooked all of it, I don’t get hurt by stupidity. (Sorry) 
 
-But in person? The person I interacted with? It was almost dreamy. Obviously good things don’t last, but in the last moments of respect, when she still cared, before she turned into plastic, there was this shared shyness. Like both were scared to see it go, yet couldn’t take it further. I am not shy, I am quiet in obedience to God. But this time… I was. 
+But in person? The person I interacted with? It was almost dreamy. Obviously good things don’t last, but in the last moments of respect, when she still cared, before she turned into plastic, there was this shared shyness between me and her. Like both were scared to see it go, yet couldn’t take it further. I am not shy, I am quiet in obedience to God. But this time… I was. Mind you it was an average day, she was just studying. I found beauty in that, in something so little, small, minute, yet meant so much. It wouldn't surprise me if there was an unshared reaction of hers.
 
 She hugged me twice that day, and I never saw that person ever again after that. 
 
