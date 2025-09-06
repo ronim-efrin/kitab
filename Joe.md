@@ -67,3 +67,24 @@ permalink: prayer
 <br>4 Yea, even if I should walk in the midst of the shadow of death, I will not be afraid of evils: for thou art with me; thy rod and thy staff, these have comforted me. 
 <br>5 Thou hast prepared a table before me in presence of them that afflict me: thou hast thoroughly anointed my head with oil; and thy cup cheers me like the best wine. 
 <br>6 Thy mercy also shall follow me all the days of my life: and my dwelling shall be in the house of the Lord for a very long time.
+
+
+# **Psalm 39** *(help out of the pit of misery, and in the counsel of the wicked)*
+<br>1 For the end, a Psalm of David.
+<br>2 I waited patiently for the Lord; and he attended to me, and hearkened to my supplication. 
+<br>3 And he brought me up out of a pit of misery, and from miry clay: and he set my feet on a rock, and ordered my goings aright. 
+<br>4 And he put a new song into my mouth, even a hymn to our God: many shall see it, and fear, and shall hope in the Lord. 
+<br>5 Blessed is the man whose hope is the name of the Lord, and who has not regarded vanities and false frenzies.
+<br>6 O Lord my God, thou hast multiplied thy wonderful works, and in thy thoughts there is none who shall be likened to thee: I declared and spoke of them: they exceeded number. 
+<br>7 ✡ Sacrifice and offering thou wouldest not; but a body hast thou prepared me: whole-burnt-offering and sacrifice for sin thou didst not require.
+<br>8 Then I said, Behold, I *come: in the volume of the book it is written concerning me, 
+<br>9 I desired to do thy will, O my God, and thy law in the midst of mine heart. 
+<br>10 I have preached righteousness in the great congregation; lo! I will not refrain my lips; O Lord, thou knowest my righteousness. 
+<br>11 I have not hid thy truth within my heart, and I have declared thy salvation; I have not hid thy mercy and thy truth from the great congregation.
+<br>12 But thou, Lord, remove not thy compassion far from me; thy mercy and thy truth have helped me continually. 
+<br>13 For innumerable evils have encompassed me; my transgressions have taken hold of me, and I could not see; they are multiplied more than the hairs of my head; and my heart has failed me. 
+<br>14 Be pleased, O Lord, to deliver me; O Lord, draw nigh to help me. 
+<br>15 Let those that seek my soul, to destroy it, be ashamed and confounded together; let those that wish me evil be turned backward and put to shame. 
+<br>16 Let those that say to me, Aha, aha, quickly receive shame for their reward. 
+<br>17 Let all those that seek thee, O Lord, exult and rejoice in thee; and let them that love thy salvation say continually, The Lord be magnified. 
+<br>18 But I am poor and needy; the Lord will take care of me; thou art my helper, and my defender, O my God, delay not.
